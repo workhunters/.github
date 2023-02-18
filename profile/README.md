@@ -16,3 +16,9 @@ Well, if we are talking about Linkedin then there are a lot of jobs we agree, bu
 
 ### 2. <b> Google Jobs Example **(Jobs are not good enough and Job Description is BROKEN)**
   ![image](https://user-images.githubusercontent.com/48829314/219900118-81b1f9f5-29d2-4752-9ffb-2527de41cebf.png)
+
+----
+<img width="1660" alt="image" src="https://user-images.githubusercontent.com/48829314/219904317-b04f6301-738f-446a-a569-5e3f4318c43c.png">
+<img width="988" alt="Screenshot 2023-02-19 at 5 12 01 AM" src="https://user-images.githubusercontent.com/48829314/219904415-c130c7f6-2210-4970-80a5-03fce2ca5633.png">
+<img width="460" alt="Screenshot 2023-02-19 at 5 11 08 AM" src="https://user-images.githubusercontent.com/48829314/219904418-a2856f57-1079-4462-9a0b-81efb7467c54.png">
+<img width="1652" alt="Screenshot 2023-02-19 at 5 10 47 AM" src="https://user-images.githubusercontent.com/48829314/219904433-ddb6c022-9ea9-4097-9f13-bf2e8afcb84a.png">
